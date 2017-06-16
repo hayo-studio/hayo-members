@@ -4,7 +4,9 @@
 
 - MCBBS home: [here](http://mcbbs.tvt.im/forum.php?mod=group&fid=128)
 
-- QQ Group: 417667844
+- QQ Group: [417667844](http://dwz.cn/joinhayo)
+
+- Discord Server: [here](https://discord.gg/3dR7Yp5)
 
 ## List
 
